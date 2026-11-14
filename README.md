@@ -1,2 +1,2 @@
 # git-merge-practice
-ეს არ არის სასწავლო პროექტი
+szl;ldl;shljx;kcvdfkkjhbkasjl
